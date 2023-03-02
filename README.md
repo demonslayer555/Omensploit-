@@ -1,0 +1,1 @@
+Omensploit v1 is a brand new executor its great free and can execute most scripts it has a anti vrius protection script execute and it makes sure the scripts arent virus and it has fast injection speeds one of the best executors out right now
